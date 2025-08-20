@@ -15,42 +15,11 @@
 ## 🏆 GitHub Trophies (El gorky me hizo salir del valo para un trofeo y ni lo pone en su Readme)
 ![](https://github-profile-trophy.vercel.app/?username=PollitoTactico&theme=radical&no-frame=false&no-bg=true&margin-w=4)
 
-### ✍️ Random Dev Quote (Pongan Porno)
-![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=radical)
-
-### 🔝 Top Contributed Repo (Ya no pongan porno :c )
+### 🔝 Top Contributed Repo 
 ![](https://github-contributor-stats.vercel.app/api?username=PollitoTactico&limit=5&theme=dark&combine_all_yearly_contributions=true)
 
----
-
-## 😶‍🌫️ Esto si es musica pedazo de puta
+## 😶‍🌫️ LO QUE ANDO ESCUCHANDO (sin musica no se programar)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=arcv1ig6py82rz4e768l54aqj&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
-
-## 🤬 VALORANT 
-
-A continucacion les presento mi segunda vida mi vicio asqueroso,repugnante, morbido, ratero, homosexual, amante, de, los, negros, de, tres, metros. Creo que perdi el punto...
-Estos son mis mains en el Valo no signidica que los juego bien pero aunque sean los juego. 🥵🥸
-
-Killjoy: La verdad solo me se un setup pero igual siguen cayendo en el mismo :v pinches hierros, bronces, platas (aqui me quede xd ), oro, platino y tu mamá
-
-![image](https://github.com/user-attachments/assets/e4b8f95e-4f72-4248-a4c8-2bbade155538)
-
-Gekko: El gekko siempre tengo una partida buena y luego no la pongo ni una vez, es el agente perfecto pa mi porque siempre tengo la spike, ademas es el unico con el que no ciego a mi equipo aun asi le ciego al Nico de vez en cuando.
-
-![image](https://github.com/user-attachments/assets/b5685122-cdf1-43b6-bba4-bef6d0dc1982)
-
-Clove: Le juego medio desente la verdad no pongo humos pero con ella si pego... aveces
-
-![image](https://github.com/user-attachments/assets/bf3cfc90-b524-4677-9ddc-43a44ed445ce)
-
-## 🤯 One piece
-One piece es la historia de un grupo de piratas que estan en busca del del del mejor tesoro del mundo el one piece... 
-Frase...
-Riqueza💰,fama🏆,poder💪.
-Gol D. Roger el rey de los piratas 👑 💀conquistó todo lo que el mundo 🌎 puede ofrecer,sus últimas palabras antes de morir hicieron que la gente corrieran 🏃🏻 hacia el oceano. ¿Quieren mi tesoro? Si lo quieren vayan y busquenlo todo lo que obtuve de este mundo lo encontran ahi. Los hombres se dirigieron a la gran ruta maritina para cumplir sus sueños. Y asi comenzo la GRAN ERA DE LOS PIRATAS *suena musica epica de opening " We Are "*
-
-
-![image](https://github.com/user-attachments/assets/a496bf93-7f9f-4868-814c-fa6ca34888e7)
 
 ## 🤓☝️ Una breve descripcion de mi persona...(entediste esa CUARTETO REFERENCIA!!!!?)
 Me describo como un ser antisocial, osea estoy en contra de las personas ojala se exitangan asi nadie me jode. Soy como un pito me encierro en mi prepucio y no salgo hasta que una minita me hable. 🐔
