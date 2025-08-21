@@ -1,4 +1,4 @@
-#💫 HOLA SOY JOSÉ:
+## 💫 HOLA SOY JOSÉ:
 🔭 Trabajo en EMPORIUM soy pasante de desarrollo 😘<br><br>👯 Trabajo en equipo efectivamente excepto cuando me hablan por hacer mal un push (mande todo a la main) 🙌<br><br>🤝 No necesito ayuda yo soy god excepto cuando necesito ayuda porque me olvide algo😒<br><br>🌱 Me prometi a mi mismo que nunca aprenderia Python y ahora es lo q me da de comer 🍕<br><br>💬 Pregunta lo que quieras excepto si tiene que ver con programación se me funde el cerebro <br><br>⚡Un dato curioso esque los pinguinos se prostituyen por piedras
 
 
